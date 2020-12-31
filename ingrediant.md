@@ -1,4 +1,4 @@
-Red velvet cake ingrediants are -->
+Red velvet rafe cake ingrediants are -->
 
 1. ½ cup of unslated butter(room tamprature) (115g)
 2. 1½ cups of white granulated sugar(300g)
